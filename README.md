@@ -8,3 +8,6 @@ Resume Link :- https://drive.google.com/file/d/1JJLqjjVD5pz4GzTiZZ3CAcpwfANJ5hKL
 
 # Softskills - Projects Assignment Module-3
 Link :- https://youtu.be/HpAdYGOsEjg
+
+# Softskills - Confidence Building (Activity Session) - Language Barrier , Impromptu Speech - It Policies Briefing Assignment Module-7
+Link :- https://drive.google.com/file/d/1025RWZbD3MfiR-3ZTbSo7d_71WpLfBbA/view?usp=sharing
