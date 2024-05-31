@@ -14,3 +14,6 @@ Link :- https://drive.google.com/file/d/1025RWZbD3MfiR-3ZTbSo7d_71WpLfBbA/view?u
 
 # Softskills - Technology Assignment Module-2
 Link :- https://youtu.be/bdnHrDKau-E
+
+# Softskills - Hr Questions Assignment Module-4
+Link :- https://youtu.be/HKbsyHUmaII
